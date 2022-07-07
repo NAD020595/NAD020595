@@ -1,4 +1,4 @@
-👋 Hi, I’m Nguyen Anh Duy - Vietnamese name.
+👋 Hi, I’m Nguyen Anh Duy - in Vietnamese name.
 
 👋 You can call me Lucas - in English name.
 
